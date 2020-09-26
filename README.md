@@ -1,0 +1,2 @@
+# gosudarstvenostyakutii
+GitHub Pages
